@@ -1,4 +1,5 @@
 # Leytenant Yaqub Məhəmməd oğlu Nəcəfov
+![Şəhid Yaqub Nəcəfov](sehid.jpg)
 
 > "Hər kəs Vətənini sevə bilər, ancaq hər kəs Vətəni uğrunda şəhid olmağı arzulayacaq qədər sevə bilməz!"
 
